@@ -9,7 +9,7 @@ Data Analyst
 
 - 💬 Ask me about **Excel,SQL,PowerBI,Python,R**
 
-- 📫 How to reach me **anikethendreyahoo@gmail.com**
+- 📫 How to reach me **anikethendre966@gmail.com**
 
 <h3 align="left">Connect with me: 7499714348 </h3> 
 <p align="left">
